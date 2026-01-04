@@ -17,4 +17,4 @@ APP导航下载页源码带后台
 
 4.后台路径: 域名/Youni 后台账号:admin 后台密码:123456
 
-链接：https://pan.xunlei.com/s/VOi7UnyCDKC66Vu1-NhGNn5hA1?pwd=g5e4# 复制这段内容后打开「手机迅雷 App」即可获取。无需下载在线查看，视频原画享倍速播放
+链接：https://zibovip.top/3867.html
